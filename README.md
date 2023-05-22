@@ -2,4 +2,4 @@
 
 ## A Love Story Written in Yellow: Uniting Hearts with Passion for CSK! 💛🏆
 
-![Csk dash](https://github.com/Shalini217/CSK-dashboard-/assets/106149428/e45bf25c-f186-4943-b803-da02ae2d468a)
+![CSK Dashboard](https://github.com/Shalini217/CSK-Dashboard/assets/106149428/0078fcd3-0414-4130-b992-f26a79633f56)
